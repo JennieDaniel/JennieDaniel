@@ -1,5 +1,5 @@
 
-# Hello, I'm jennie 👋
+# Hello, I'm Xavier J 👋
 
 🌐 Web Developer | 🎨 UI/UX Enthusiast
 
